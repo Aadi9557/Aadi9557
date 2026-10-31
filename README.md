@@ -1,4 +1,4 @@
-# Hi, I'm Aditya Singh 👋
+# Hi, I am Aditya Singh
 
 ### E-commerce Operations | Business Analytics | Logistics & Supply Chain
 
