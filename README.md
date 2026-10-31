@@ -19,7 +19,7 @@
 
 ## About Me
 
-I am an **E-commerce Operations and Business Analytics professional** with nearly 6 years of experience across order fulfilment, inventory coordination, logistics, last-mile delivery, MIS reporting and process improvement.
+I am an **E-commerce Operations and Data Reporting professional** with nearly 6 years of experience across order fulfilment, inventory coordination, logistics, last-mile delivery, MIS reporting and process improvement.
 
 My strength is the combination of **hands-on operational experience and analytical thinking**. I use data to understand performance, identify bottlenecks and help teams make better decisions.
 
