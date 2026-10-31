@@ -4,7 +4,7 @@
 
 # ADITYA SINGH
 
-### E-commerce Operations · Business Analytics · Logistics & Supply Chain
+### E-commerce Operations & Analytics · Logistics & Supply Chain
 
 **Turning operational data into better business decisions.**
 
